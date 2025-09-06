@@ -26,7 +26,7 @@
 ## 🌐 Connect With Me
 - [LinkedIn](https://www.linkedin.com/in/kelvin-idemudia-709418249?utm_source=share&utm_campaign=share_via&utm_content=profile&utm_medium=ios_app)  
 - [Twitter](https://x.com/kelvinidemudia0?s=21)  
-- [Medium](https://medium.com/@yourhandle)  
+- [Medium](http://medium.com/@kelvinidemudia0) 
 
 ---
 
